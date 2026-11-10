@@ -187,7 +187,7 @@ I value practical engineering, continuous learning, and building tools that deli
 
 - GitHub: [@Heroofdarkness7788](https://github.com/Heroofdarkness7788)
 - Email: [ip.muhammadsaleh@gmail.com](mailto:ip.muhammadsaleh@gmail.com)
-
+- Whatsapp: [+966 553348364](https://wa.me/966553348364)
 ---
 
 *Building practical technology. Automating meaningful work. Solving real problems.*
